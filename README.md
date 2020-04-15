@@ -1,0 +1,2 @@
+# responsi
+tugas responsi
